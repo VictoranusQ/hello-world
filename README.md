@@ -1,2 +1,3 @@
 # hello-world
 ...
+how can i read all these fking english texts without a good translator?
